@@ -11,6 +11,7 @@ hola, im maz
 tryin to build the next crazy thing! hopefully...
 <br>
 check out my socials! :p
+<br>
 <a href="https://instagram.com/mazsvie">instagram</a> •
 <a href="https://tiktok.com/@mazsvie">tiktok</a>
 </div>
