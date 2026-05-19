@@ -8,7 +8,7 @@
 <div align="center">
 hola, im maz
 <br>
-tryin to build the next crazy thing! hopefully...
+tryna build the next big thing! hopefully...
 <br>
 check out my socials! :p
 <br>
