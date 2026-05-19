@@ -10,7 +10,7 @@ hola, im maz
 <br>
 tryna build the next big thing! hopefully...
 <br>
-check out my socials! :p
+check out my socials! 😁
 <br>
 <a href="https://instagram.com/mazsvie">instagram</a> •
 <a href="https://tiktok.com/@mazsvie">tiktok</a>
